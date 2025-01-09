@@ -1,1 +1,1 @@
-# Phillip-von-Seitz-Marienleben
+# Philipp-von-Seitz-Marienleben
